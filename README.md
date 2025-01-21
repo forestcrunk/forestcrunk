@@ -1,8 +1,8 @@
-         Red flags!
+                  All I ever wanted was to pick apart the day
 
-                                Red flags!
+                                         Swallow up the pieces, spit'em at your species
 
-     Red flags!
+     Beached in a city of lost barnacles and leeches
 
-                                                         Red flags!
+                                                         **Night Light** got me when the **Daylight** turn to evening
 
